@@ -1,4 +1,4 @@
-# penuliscode
+# AFFRIYANTO
 Perkenalkan nama saya **affriyanto**.<br>
 
 Saya seorang **laskar AI ** di [Dicoding](https://www.dicoding.com/).<br>
